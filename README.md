@@ -3,6 +3,8 @@
 # 认知和了解
 ## 书籍
 《12周像乔丹一样飞》
+![e49047021e914b9e0184b7033a38b374](https://github.com/purple-WL/Bounce-training/assets/63894044/f326d6a4-d89a-4ef4-a920-b85c2d238f2c)
+
 ## 短视频
 抖音
 ## 身体基础硬件
